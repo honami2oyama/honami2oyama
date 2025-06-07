@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @honami2oyama
-- 👀 I’m interested in uhh
+- 👀 I’m interested in lesbian sex
 - 🌱 I’m currently learning C++ and PHP
 - 📫 How to reach me: Discord
-- 😄 Pronouns: She/Them
+- 😄 Pronouns: She/Her
 - ⚡ Fun fact: No fun fact
